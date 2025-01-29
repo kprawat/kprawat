@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kprawat
-- 👀 I’m interested in aeronautics, kayaking, super long hikes, film production, and nature.
+- 👀 I’m interested in aeronautics, kayaking, super long hikes, film production, fantasy football, real football, pickleball, softball, and nature.
 - 🌱 I’m currently learning corporate lingo.
 - 💞️ I’m looking to collaborate on a short comedy/thriller film.
 - 📫 How to reach me: kprawat@teaching.com
